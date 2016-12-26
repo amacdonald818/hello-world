@@ -1,3 +1,3 @@
 # hello-world
 trying to learn code
-trying to learn code from home
+need to learn to cook better aswell. hopefully i'm not wasteing my time with code
